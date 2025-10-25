@@ -1,0 +1,1 @@
+# My_coin_template
